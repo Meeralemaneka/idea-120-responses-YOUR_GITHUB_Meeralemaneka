@@ -1,9 +1,13 @@
 **Arrival of a Train**
 
-A train flew out of the wall 
+A train flew out of the wall
+
 did the spectators really bawl?
+
 perhaps it was just something very new 
+
 motion picture had been too wild to be true 
+
 The Lumiere Brothers were the start of it all
 
 [Arrival of Train at La Ciotat](https://www.youtube.com/watch?v=1dgLEDdFddk).
