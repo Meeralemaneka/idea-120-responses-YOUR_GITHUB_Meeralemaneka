@@ -1,4 +1,4 @@
-#Jeffree Star
+# Jeffree Star
 
 [Thirst campaign image](https://www.pinterest.com/pin/my-summer-collection-is-officially-here-shop-the-thirsty-palette-liquid-lips-lip-scrubs-and--372039619216888881/)
 
