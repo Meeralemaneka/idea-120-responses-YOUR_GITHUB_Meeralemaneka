@@ -1,0 +1,5 @@
+# O Neil and Chalabi
+
+Collectively, O Neil and Chalabi stress upon how misleading facts and figures can be on the internet. Statistics and averages shown online by private companies will always show numbers that work in their favor or make their products look better. Targeted ads are deemed to be predatory as they monitor users online behaviors and hit them with exactly the kind of stuff that would entice them. These ads could be for anything, from college to even just little products like skin care, but the facts remains that they may not always be beneficial to users.
+
+Even though personally the pattern of these targeted ads always freaked me out, I actually have found them quite helpful recently when trying to find things online. Although I have ended up in situations where I’ve spent more money that I’ve wanted too, I’ve always found things that I wouldn’t have found if I looked on my own. For this reason I am impartial to these tools, however I still recognize the risks involved and encourage mindful browsing. I do agree with Chalabi about how government statistics are helpful in a way and are needed to better social structures.
